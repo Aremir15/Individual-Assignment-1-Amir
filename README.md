@@ -1,1 +1,3 @@
-Hi Sir Ridhwan, Here i'm attach my Individual Assignment 1 for your review. Thank You
+Name: Mohamad Amir Hazim Bin Mohd Nor
+Student ID: 2025566971
+Class: NBCS2404A
